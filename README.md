@@ -1,1 +1,1 @@
-https://gustavohk.com/#
+https://gustavohk.com/
